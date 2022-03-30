@@ -62,7 +62,7 @@
 ## Experience 
 
 ## Education
- **College:** Moscow Regional College of Finance and Management
+ **College:** Moscow Regional College of Finance and Management.
  
 ## English
  **A2**
